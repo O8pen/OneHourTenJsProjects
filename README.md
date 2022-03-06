@@ -2,4 +2,4 @@
 
 https://www.youtube.com/watch?v=8GPPJpiLqHk&list=PLgBH1CvjOA60Qx1x_2kDDhroGXBwvAFUK
 
-Time in the Video : 0:43:40
+Time in the Video : 0:57:31
